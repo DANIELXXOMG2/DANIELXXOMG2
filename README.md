@@ -12,7 +12,7 @@ Soy un desarrollador de software con ganas de aprender sobre desarrollo web. Est
 - **Proyectos Personales**: Proyectos en los que pueda aplicar y mejorar mis habilidades.
 
 ## 📫 Cómo contactarme...
-- **Discord**: [danielxxomg¿
+- **Discord**: [danielxxomg]
 - **WhatsApp**: Contáctame para obtener mi número de WhatsApp.
 
 ## 😄 Pronombres:
